@@ -17,6 +17,6 @@
 
 <h6 align="center">
 
-<a href="https://github.com/rookieleon">alt</a> 
+<a href="https://github.com/Welcome2Paradise">main</a> 
 
 ᵃˢ ˡᵒⁿᵍ ᵃˢ ʸᵒᵘ'ʳᵉ ᵃˡᶦᵛᵉ . . . ʰᵉ'ˡˡ ˡᵉᵃᵛᵉ ᵐᵉ .
